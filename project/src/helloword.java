@@ -6,3 +6,8 @@ haha
 ha ni ma la ge bie
 1
 2
+
+
+
+dlrow olleh
+uoy era woh
